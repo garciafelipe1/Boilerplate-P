@@ -1,1 +1,1 @@
-Hola! Aca vas a ver  los proyectos que estuve haciendo. Muchas gracias por ver.
+Hola! Este es min  Portfolio y vas aver todos mis proyectos. Muchas gracias por ver.
